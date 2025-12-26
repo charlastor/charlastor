@@ -1,1 +1,1 @@
-<img src="https://i.pinimg.com/736x/29/23/7d/29237d691a46f8bf5d4ba455e19fc8f1.jpg" alt="This may contain: an image of a cartoon character hugging another character with wings on their head and eyes"/><img width="736" height="625" alt="image" src="https://github.com/user-attachments/assets/c668eac7-e16c-494f-8568-13a01753c9c3" />
+<img width="736" height="625" alt="image" src="https://github.com/user-attachments/assets/c668eac7-e16c-494f-8568-13a01753c9c3" />
