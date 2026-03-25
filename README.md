@@ -4,14 +4,3 @@
 <p align="center"> he / him / himself . bipolar & gender dysphoria im always open to c+h unless ex friends and or ex partners . strict dni: 𝗿𝗮𝗲 & raes friends !! i block freely but if you flirt with me in any way shape or form you will be blocked. i love my boyfriend sorry not sorry
 <p align="center"> gay and taken !! i love you camron mwah mwahhh . int: hazbin hotel / any other fandoms im in , mutuals and friends also radiostatic / staticbelle / staticapple
 <p align="center"> to be honest i might be unfunny or come off as cringe to most , i have a very mixed sense of humor
-
-  ![abba6af28cf65db5488e56b0afd56dbc](https://github.com/user-attachments/assets/aca312f3-2d0b-4064-bafb-c528ef8164ff)
-![ff5d162fe1952114b7de687e9be378e2](https://github.com/user-attachments/assets/f9c29ef2-6817-4bfe-9e0a-73b0645c9fd2)
-![145ae0481f327f47963e6206b5a06de0](https://github.com/user-attachments/assets/560b3376-6f40-4c2a-a80d-f289a6a47356)
-![e949c57a6369cdf04bc487427f317b59](https://github.com/user-attachments/assets/a7618a5a-d438-4aac-b0e5-4ff54d5da694)
-
-
-<p align="center"> i love my amazing boyfriend camron so much <3 camron if you see this i love you baby
-
-![Screenshot_20260311_113218_DuckDuckGo](https://github.com/user-attachments/assets/a391244d-cf81-496b-9fc5-c2c4b14d0d90)
-![Screenshot_20260311_113317_Spotify](https://github.com/user-attachments/assets/9a6b8e30-3f38-4976-bd12-8d98c422e1c4)
